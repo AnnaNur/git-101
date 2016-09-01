@@ -16,3 +16,5 @@ already married
 im study at multimedia college
 
 that's all 
+
+oky bai , assalamualaikum
