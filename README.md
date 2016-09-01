@@ -2,3 +2,7 @@
 learn Git from basic
 
 hai
+
+assalamualaikum
+
+im nurul hasanah
