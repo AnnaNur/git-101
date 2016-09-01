@@ -12,3 +12,7 @@ im 20 years old
 im stay in kemaman
 
 already married
+
+im study at multimedia college
+
+that's all 
